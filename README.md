@@ -1,5 +1,5 @@
 # **Hotspot-Shield-Crack**
-Hotspot Shield Crack is designed to surf the web safely and bypass browsing restrictions.
+Hotspot Shield Crack is designed to get the premium version of Hotspot Shield for free
 ### ** *Images Also Available At The Bottom Of This File* **
 
 ## **The Hotspot-Shield-Crack Repository contains the following files:**
