@@ -1,25 +1,22 @@
-# **Microsoft-Office-Cracked**
-Microsoft Office Cracked is designed to install and crack Microsoft Office without having to pay the unnecessary money.
+# **Hotspot-Shield-Crack**
+Hotspot Shield Crack is designed to surf the web safely and bypass browsing restrictions.
 ### ** *Images Also Available At The Bottom Of This File* **
 
-## **The Microft-Office-Cracked Repository contains the following files:**
+## **The Hotspot-Shield-Crack Repository contains the following files:**
  
 - Microsoft Office 365 Setup
 - Activation Crack File
 - Installation & Activation Steps
 
 # Contents
- 1. [Download](https://github.com/AnonymousAbo/Microsoft-Office-Cracked#Download)
- 2. [Installation-Steps](https://github.com/AnonymousAbo/Microsoft-Office-Cracked#Installation-Steps)
- 3. [Activation-Steps](https://github.com/AnonymousAbo/Microsoft-Office-Cracked#Activation-Steps)
- 4. [Images](https://github.com/AnonymousAbo/Microsoft-Office-Cracked#Images)
+ 1. [Download](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Download)
+ 2. [Installation-Steps](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Installation-Steps)
+ 3. [Activation-Steps](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Activation-Steps)
+ 4. [Images](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Images)
 
 # **Download**
 
-If you have git installed on your computer you can open CMD and download using this command:
-
-    git clone https://github.com/AnonymousAbo/Microsoft-Office-Cracked
-Or you can scroll to the top of the page and click on the green 'Code' button and 'Download as ZIP'
+Scroll to the top of the page and click on the green 'Code' button and 'Download as ZIP'
     
 # **Installation Steps:**
 -------------------
