@@ -1,4 +1,4 @@
-# **Hotspot-Shield-Crack**
+# **Hotspot-Shield-Crack** - *BY ANONYMOUS ABO*
 Hotspot Shield Crack is designed to get the premium version of Hotspot Shield for free
 ### ** *Images Also Available At The Bottom Of This File* **
 
