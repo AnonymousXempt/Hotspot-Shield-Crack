@@ -10,12 +10,12 @@ Hotspot Shield Crack is designed to get the premium version of Hotspot Shield fo
 - Patch (if error occurs)
 
 # Contents
- 1. [Requirements](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Requirements)
- 2. [Features](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Features)
- 3. [Download](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Download)
- 4. [Installation-Steps](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Installation-Steps)
- 5. [Activation-Steps](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Activation-Steps)
- 6. [Images](https://github.com/AnonymousAbo/Hotspot-Shield-Crack#Images)
+ 1. [Requirements](https://github.com/AnonymousXempt/Hotspot-Shield-Crack#Requirements)
+ 2. [Features](https://github.com/AnonymousXempt/Hotspot-Shield-Crack#Features)
+ 3. [Download](https://github.com/AnonymousXempt/Hotspot-Shield-Crack#Download)
+ 4. [Installation-Steps](https://github.com/AnonymousXempt/Hotspot-Shield-Crack#Installation-Steps)
+ 5. [Activation-Steps](https://github.com/AnonymousXempt/Hotspot-Shield-Crack#Activation-Steps)
+ 6. [Images](https://github.com/AnonymousXempt/Hotspot-Shield-Crack#Images)
 
 # **Requirements**
 - Supported OS: Windows 7/8/10
